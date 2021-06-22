@@ -1,0 +1,1 @@
+Guide are on [Google doc](https://docs.google.com/document/d/1pL-VZ0MgFpuSirIGnvTSo9S--4PLqB1SJiX2nLoS0Ww)
